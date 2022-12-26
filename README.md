@@ -1,0 +1,7 @@
+- 👋 Hi, I’m maxie, or ghost!
+- 👀 I’m interested in music, technology, and coding!
+- 🌱 I’m currently learning how to code and build my own robots!
+- 💞️ I’m looking to collaborate on music projects, games, or art comissions!
+- 📫 How to reach me 
+- discord: maxie#0498
+- email: maxhoonlee@gmail.com
